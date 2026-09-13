@@ -11,7 +11,7 @@ never call me bro.}}$
 
 [staw](https://munroeeeee.straw.page)
  for gimmick sending
-![](https://64.media.tumblr.com/f27679d01a59184053a0874b8e7fd0e8/53460eb827122b25-3f/s640x960/1bc940020da9cd9b42e1c66ace49087b68985410.gifv)
+![](https://64.media.tumblr.com/491bdccd7c8370577073b380a90acb77/bbb5d3d6d8154d93-45/s2048x3072/c03d2e81f173b5b07e5ce57977dbe4eb9ff3c47b.pnj)
 
 <details> 
  <summary> $\color{#e2d0aa}{\textsf{status meaning!}}$</summary>
