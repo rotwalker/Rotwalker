@@ -12,6 +12,7 @@ never call me bro.}}$
 [staw](https://munroeeeee.straw.page)
  for gimmick sending
 ![](https://64.media.tumblr.com/f27679d01a59184053a0874b8e7fd0e8/53460eb827122b25-3f/s640x960/1bc940020da9cd9b42e1c66ace49087b68985410.gifv)
+
 <details> 
  <summary> $\color{#e2d0aa}{\textsf{status meaning!}}$</summary>
 🟢 - interact! im online and possibly looking for someone to talk with
@@ -38,7 +39,6 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 
  
  
- 
 <details>
   <summary>stamps</summary>
   
@@ -63,6 +63,5 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
   ![FUCKICE](https://64.media.tumblr.com/dde11cf4ae711e804da6aaedd7e562fa/c56a4856587bf371-d4/s250x400/273072f690c20761b078d802bc7cbeb2c92d49b2.gifv)
   ![❤️❤️](https://64.media.tumblr.com/81f13d6e48c4f1d21dbbed539c6579c8/2eaf92485d9e8f59-5c/s250x400/e9c4deffbdb9efb6e3b36a6c2a91b29d79722248.pnj)![I HOPE I MAKE IT](https://64.media.tumblr.com/3d5724ade5f511be9ad68905c26f555d/b9f0667efe8d33e6-df/s1280x1920/014e2396ccb5900394b6dd15b18bfa7496b73f5e.jpg)
 </details>
-
 
 ![bottoentetthz](https://64.media.tumblr.com/0c28157c11d592b9e899e9d920b9ffda/739004d019fadb58-5c/s1280x1920/6d0cd90cd18d8682c3a517b87cc0c4e931cb1f8c.jpg)
