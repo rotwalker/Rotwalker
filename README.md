@@ -1,4 +1,4 @@
-
+![](https://64.media.tumblr.com/5c21c7f506b357a50a59a0e8092c5fbc/237cac78edbe3d2f-80/s2048x3072/f7f5d6d5a8aedb1fde4668388c6ab68952330811.pnj)
 ![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)
 ![](https://64.media.tumblr.com/2d08a252955cf1059e4f1cdf4b2d253e/739004d019fadb58-01/s640x960/471ef2a7304ce44a2955b6126b7a20f8487809ea.jpg)
 
@@ -9,9 +9,9 @@ never call me bro.}}$
 
 
 
-[<kbd>Stawpage</kbd>](https://munroeeeee.straw.page)
+[staw](https://munroeeeee.straw.page)
  for gimmick sending
-
+![](https://64.media.tumblr.com/f27679d01a59184053a0874b8e7fd0e8/53460eb827122b25-3f/s640x960/1bc940020da9cd9b42e1c66ace49087b68985410.gifv)
 <details> 
  <summary> $\color{#e2d0aa}{\textsf{status meaning!}}$</summary>
 🟢 - interact! im online and possibly looking for someone to talk with
