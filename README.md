@@ -9,7 +9,7 @@
 
 
 <details> 
- <summary> $\color{#680502}{\textsf{status meaning!}}$</summary>
+ <summary> $\color{#e2d0aa}{\textsf{status meaning!}}$</summary>
 🟢 - interact! im online and possibly looking for someone to talk with
 
 
@@ -62,17 +62,3 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 
 
 ![bottoentetthz](https://64.media.tumblr.com/14f29ac559dbb3c4340f8cd28c057980/3d7c6c266fd0c206-40/s2048x3072/986cc5df6e4c084291af0dc6849bb8d134ad03e7.pnj)
-<!--
-**MeatMime/MeatMime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
