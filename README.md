@@ -2,8 +2,6 @@
 ![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)![](https://64.media.tumblr.com/f760c3721be6aca30413a5c8b237069e/448cd8ff38944da3-ce/s500x750/896a488c0ecc41c6733df969913b1190b4827bf3.gifv)
 
 
-![bloood](https://64.media.tumblr.com/ac97cb7b4383cc0e4071f34ca1058016/829c82e917f53065-76/s500x750/d99f9a3eea02693343784b3594cdccf40a77c9ee.gifv)
-
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
 
