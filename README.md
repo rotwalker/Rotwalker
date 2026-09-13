@@ -4,9 +4,8 @@
 
 $\color{#C8AF86}{\text{I am very moody.}}$
 
-$\color{#FDEDCC}{\text{exclusively Non human/masculine terms.
-never call me bro.}}$
-
+$\color{#FDEDCC}{\text{exclusively Non human/masculine terms.}}$
+$\color{#c8af86}{\text{NEVER call me bro.}}$
 
 
 [staw](https://munroeeeee.straw.page)
