@@ -3,8 +3,7 @@
 
 
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page)
- for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
-
+ for gimmick sending
 
 <details> 
  <summary> $\color{#e2d0aa}{\textsf{status meaning!}}$</summary>
@@ -21,9 +20,9 @@
 
 IWC: interact with care; im probly upset and would prefer if you were being pushy, sarcastic or just mean in general 
 
-IW-caution: i probably feel bad or angry and will probably say something that might hurt your feelings 
+IW-caution: i probably feel bad or angry and will probably say something that might hurt your feelings. will definitely be uncomfortable 
 
-C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with me 
+C+H: you CAN sit with me! even if I'm afk or not. i love it when others sit with me 
 
 NO rp: in the name... Roleplay NOT open or welcome. ill block you or say something that might make you feel bad
  </details>
