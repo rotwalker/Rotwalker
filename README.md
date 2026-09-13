@@ -1,7 +1,8 @@
 
 ![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)![](https://64.media.tumblr.com/bb32e2f862e1e8ada1e634fd5d7fd8c1/448cd8ff38944da3-8b/s1280x1920/6c9c3ee962cfecf0034bcb541b592a5f27b97e9a.jpg)
 
-$\color{#FDEDCC}{\text{I am very moody and my overall mood can change in a second}}$
+$\color{#C8AF86}{\text{I am very moody.}}$
+
 $\color{#FDEDCC}{\text{exclusively Non human/masculine terms.
 never call me bro.}}$
 
