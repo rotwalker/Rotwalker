@@ -1,5 +1,5 @@
 
-![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)![](https://64.media.tumblr.com/0a3539c5938bed971fe7ef6bb3b38bf4/3d7c6c266fd0c206-2e/s2048x3072/589c28ba9455a7ad7b62d1a3e54b2f1d610df522.pnj)
+![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)![](https://64.media.tumblr.com/f760c3721be6aca30413a5c8b237069e/448cd8ff38944da3-ce/s500x750/896a488c0ecc41c6733df969913b1190b4827bf3.gifv)
 
 
 ![bloood](https://64.media.tumblr.com/ac97cb7b4383cc0e4071f34ca1058016/829c82e917f53065-76/s500x750/d99f9a3eea02693343784b3594cdccf40a77c9ee.gifv)
@@ -61,4 +61,4 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 </details>
 
 
-![bottoentetthz](https://64.media.tumblr.com/14f29ac559dbb3c4340f8cd28c057980/3d7c6c266fd0c206-40/s2048x3072/986cc5df6e4c084291af0dc6849bb8d134ad03e7.pnj)
+![bottoentetthz](https://64.media.tumblr.com/7add1aacd09999b519a028ea0c81e6cb/448cd8ff38944da3-47/s1280x1920/3b76a746cb70863f8470f35bb091915607a4a951.jpg)
