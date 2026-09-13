@@ -1,5 +1,6 @@
 
-![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)![](https://64.media.tumblr.com/bb32e2f862e1e8ada1e634fd5d7fd8c1/448cd8ff38944da3-8b/s1280x1920/6c9c3ee962cfecf0034bcb541b592a5f27b97e9a.jpg)
+![visitors](https://views.igorkowalczyk.dev/api/badge/Rotwalker?style=flat)
+![](https://64.media.tumblr.com/2d08a252955cf1059e4f1cdf4b2d253e/739004d019fadb58-01/s640x960/471ef2a7304ce44a2955b6126b7a20f8487809ea.jpg)
 
 $\color{#C8AF86}{\text{I am very moody.}}$
 
@@ -64,4 +65,4 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 </details>
 
 
-![bottoentetthz](https://64.media.tumblr.com/7add1aacd09999b519a028ea0c81e6cb/448cd8ff38944da3-47/s1280x1920/3b76a746cb70863f8470f35bb091915607a4a951.jpg)
+![bottoentetthz](https://64.media.tumblr.com/0c28157c11d592b9e899e9d920b9ffda/739004d019fadb58-5c/s1280x1920/6d0cd90cd18d8682c3a517b87cc0c4e931cb1f8c.jpg)
